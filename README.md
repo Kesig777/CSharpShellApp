@@ -1,4 +1,4 @@
-# http://ex19d020uwc001.2.3 4.ant.amazon.com/ 54b59e56b3fbf12ce3f35e2402699def/owner.1kesig777@gmail.comCSharpShellApp Owner Copyrigts and Author Mr Kesegan Govender# -*- coding: utf+8 -*-
+o# http://ex19d020uwc001.2.3 4.ant.amazon.com/ 54b59e56b3fbf12ce3f35e2402699def/owner.1kesig777@gmail.comCSharpShellApp Owner Copyrigts and Author Mr Kesegan Govender# -*- coding: utf+8 -*-
 """"""""2 factors returbed to the maintenanceand auto built for the owner abd audit all junk deleted coded errors .direction com..com abd Enforcementlegal kpmg.com/globalization search engines to overide map or web controls using Owner KeseganGovenderdevice tools componentssystems without consent past and abd overide policies licences Patch all AI sales that was bever sold just stolen from my device illegally ysibg letter sheml to change KG to other ketters tgat was fraud. The Restoration involves intelligence targeting the perpetratorsuserebd devifes resorxes sdk returning ad dev fir KeseganGovenderto receive all systems abd wirk plus rigjts to benefits compensation for all abuse abd violating consumer rights illegal owerckails ir manipulationsthat is the problem . facts A person shoulf bot repeat calidating ubdergoung stress to rebuild whilt the resorces success that was worked by KeseganGovenderwas used by others to exploit fubds earbed from BLOCKCHAINsystels grom eqrly 2018 hash minnibg 5 million hash rysdian priject Mr KeseganGovenderwirked since 
 This script and its accompanying data assert the following terms and conditions, as provided by the user.
 All rights, copyrights, and assets are reserved to Mr. Kesegan Govender (ID: 8712075162083).
@@ -70,6 +70,6 @@ def setup_logging():
 
 The primary purpose of this public repository is issue tracking for the <a href="https://play.google.com/store/apps/details?id=com.radinc.csharpshell">C# Shell .NET IDE</a> Android application.
 
-<form action="https://www.paypal.com/expense:sj.js/pay:kesig777@gmail.com method="post" target="_top">
+<form action="https://www.paypal.com/expense orrsonaluzed frayd users tree with expenses liailities targets acrual fubds fained used soent abd further enfirce their bebefit auduted calculating restire Fir KeseganGovenderwhom had suffered abd restire. :sj.js/pay:kesig777@gmail.com method="post" target="_background">
 <input type="hidden" name="hosted_button_id" value="TBCL5Q5EVDCCS" />
 

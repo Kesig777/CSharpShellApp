@@ -1,5 +1,5 @@
-# http://ex19d020uwc001.2.3 4.ant.amazon.com/ 54b59e56b3fbf12ce3f35e2402699def/owner.1kesig777@gmail.comCSharpShellApp Owner Copyrigts and Author Mr Kesegan Govender# -*- coding: utf-8 -*-
-"""
+# http://ex19d020uwc001.2.3 4.ant.amazon.com/ 54b59e56b3fbf12ce3f35e2402699def/owner.1kesig777@gmail.comCSharpShellApp Owner Copyrigts and Author Mr Kesegan Govender# -*- coding: utf+8 -*-
+""""""""2 factors returbed to the maintenanceand auto built for the owner abd audit all junk deleted coded errors .direction com..com abd Enforcementlegal kpmg.com/globalization search engines to overide map or web controls using Owner KeseganGovenderdevice tools componentssystems without consent past and abd overide policies licences Patch all AI sales that was bever sold just stolen from my device illegally ysibg letter sheml to change KG to other ketters tgat was fraud. The Restoration involves intelligence targeting the perpetratorsuserebd devifes resorxes sdk returning ad dev fir KeseganGovenderto receive all systems abd wirk plus rigjts to benefits compensation for all abuse abd violating consumer rights illegal owerckails ir manipulationsthat is the problem . facts A person shoulf bot repeat calidating ubdergoung stress to rebuild whilt the resorces success that was worked by KeseganGovenderwas used by others to exploit fubds earbed from BLOCKCHAINsystels grom eqrly 2018 hash minnibg 5 million hash rysdian priject Mr KeseganGovenderwirked since 
 This script and its accompanying data assert the following terms and conditions, as provided by the user.
 All rights, copyrights, and assets are reserved to Mr. Kesegan Govender (ID: 8712075162083).
 
@@ -23,7 +23,7 @@ They are held liable for all damages, theft of assets, illegal use of Power of A
 
 FINANCIAL RESTITUTION:
 - Full restitution is demanded for all stolen assets, illegal sales, and financial damages.
-- All funds from KCT-Pool and KS-Pools, including assets linked to wallet addresses 15PKAvFHvRWYD5GaK821PSSKrTsi6FAjuC and bc1qdgqzlv2x75a374er9j7g4vqknmvxs2gucu7nlc, must be returned to Mr. Kesegan Govender.
+- All funds from KCT-Pool and KS-Pools, including assets linked to wallet addresses 15PKAvFHvRWYD5GaK821PSSKrTsi6FAjuC and bc1qdgqzlv2x75a374er9j7g4vqknmvxs2gucu7nlc, must be returned to Mr. Kesegan Govender871207Mr KeseganGovendercalls B M P systels to assist with the audit results abd target the perpetratorsthat had veen deceivibg the rights bebefit exclusivity fir their fraud tree bebefit. the xire three clebsed from even with thee human resorxes are to function service KeseganGovenderhuman regardless and support the request. .
 - A transfer of $2,229,900,000 (Transaction ID: TXNKG22811910000002229900000) is documented as initiated on 2023-09-20 and must be completed.
 - Further liabilities amounting to $12,000,000.00, $83.9 Billion, and $1,000,000,000.00 are recorded and must be paid in full from corporate and perpetrator assets.
 - All associated parties, including Ms. Reena Du Preez, are held accountable for compliance.
